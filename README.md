@@ -1,2 +1,2 @@
-                             Hayat Ebrahim , Ful-Stack Developer
+                             Hayat Ebrahim, Ful-Stack Developer
 
